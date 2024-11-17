@@ -1,1 +1,1 @@
-Slow starting lol guy(s)
+Slow starting lil guy(s)
